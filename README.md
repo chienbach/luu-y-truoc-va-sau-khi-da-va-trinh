@@ -1,6 +1,5 @@
 <p><span style="font-family:inherit; font-size:inherit">Chào bác sĩ, cháu năm nay 26 tuổi, chuẩn bị lập gia đình vào cuối năm nay. Trước kia cháu đã sống thử đối với bạn đời cũ. Hiện giờ cháu đã từng có bạn đời mới tuy nhiên anh không biết cháu từng &quot;làm chuyện ấy&quot; trước đó. Nếu anh biết sự thật này cháu biết anh sẽ rất buồn bã và buồn. Hàng đầu vì vậy, cháu có ý định <strong>vá màng trinh</strong> để giấu đi quá khứ lầm lỡ. Nhưng, cháu chưa biết cần thiết phải chuẩn bị một số gì. Mong bác sĩ có thể tư vấn giúp cháu những khuyên trước và sau khi vá màng trinh.</span></p>
 
-<p><a href="http://benhtrinoi.net/wp-content/uploads/2017/10/ngua-vung-am-dao.jpg" style="margin: 0px; padding: 0px; border: 0px; font-style: inherit; font-variant: inherit; font-weight: 600; font-stretch: inherit; font-size: inherit; line-height: inherit; font-family: inherit; vertical-align: baseline; color: rgb(230, 73, 70); text-decoration-line: none;"><img alt="điều trị ngứa âm đạo" class="aligncenter size-full wp-image-2700" src="http://benhtrinoi.net/wp-content/uploads/2017/10/ngua-vung-am-dao.jpg" style="border-style:initial; border-width:0px; display:block; font-family:inherit; font-size:inherit; font-stretch:inherit; font-style:inherit; font-variant:inherit; font-weight:inherit; height:auto; line-height:inherit; margin:1.25rem auto; max-width:100%; padding:0px; vertical-align:bottom; width:400px" /></a></p>
 
 <p><span style="font-family:inherit; font-size:inherit">Cháu xin chân thành cảm ơn! (Mỹ Linh &ndash; Quảng Ninh)</span></p>
 
@@ -43,6 +42,6 @@
 	<li><span style="font-family:inherit; font-size:inherit">1 tháng sau khi vá màng trinh, bạn cần tái xét nghiệm để xem màng trinh đã lành hẳn chưa.</span></li>
 </ul>
 
-<p><span style="font-family:inherit; font-size:inherit">Vừa rồi là một vài chia sẻ của các bác chuyên khoa về những lưu ý trước và sau khi vá màng trinh. Để nghiên cứu thêm về liệu pháp vá màng trinh, hãy liên hệ ngay tới </span><strong><a href="http://chuatribenhtri.vn/phong-kham-da-khoa-thai-ha-102309.html">phong kham thai ha</a></strong><span style="font-family:inherit; font-size:inherit"> theo đường dây nóng 01665.115.116 thường hay 01665.116.117 hoặc click vào hộp chat phía bài viết này. Chúng tôi cam kết tôn trọng kiến thức cá nhân và sẵn sàng tư vấn mọi thắc mắc của bạn</span></p>
+<p><span style="font-family:inherit; font-size:inherit">Vừa rồi là một vài chia sẻ của các bác chuyên khoa về những lưu ý trước và sau khi vá màng trinh. Để nghiên cứu thêm về liệu pháp vá màng trinh, hãy liên hệ ngay tới </span><strong>phong kham thai ha </strong><span style="font-family:inherit; font-size:inherit"> theo đường dây nóng 01665.115.116 thường hay 01665.116.117 hoặc click vào hộp chat phía bài viết này. Chúng tôi cam kết tôn trọng kiến thức cá nhân và sẵn sàng tư vấn mọi thắc mắc của bạn</span></p>
 
-<p><span style="font-family:inherit; font-size:inherit">Nguồn: </span><a href="http://benhtrinoi.net/nhung-luu-y-truoc-va-sau-khi-va-mang-trinh/">http://benhtrinoi.net/nhung-luu-y-truoc-va-sau-khi-va-mang-trinh/</a></p>
+
